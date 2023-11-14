@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @asiimire
-- 👀 I’m interested in back end development and data science
+- 👀 I’m interested in backend development and data science
 - 🌱 I’m currently learning Python
-- 💞️ I’m looking to collaborate on back end development projects
+- 💞️ I’m looking to collaborate on backend development projects
 - 📫 How to reach me patriciaasiimire80@gmail.com
 
 <!---
