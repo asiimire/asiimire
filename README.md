@@ -18,5 +18,6 @@ I'm always open to collaboration and new opportunities. Feel free to reach out t
 
 - Email: [asiimirepatricia26@gmail.com](mailto:asiimirepatricia26@gmail.com)
 - LinkedIn: [Patricia Asiimire](https://www.linkedin.com/in/patricia-asiimire-38b936236)
+- Website: [asiimirepatriciacom.wordpress.com](https://asiimirepatriciacom.wordpress.com/)
 
 Let's connect and create something amazing together! 😊
